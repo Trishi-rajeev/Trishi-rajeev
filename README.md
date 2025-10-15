@@ -1,6 +1,6 @@
 
 
-### Hi, I'm Trishi Rajeev!
+### Hi, I'm Trishi Rajeev !
 
 
 ## 🌐 Socials:
